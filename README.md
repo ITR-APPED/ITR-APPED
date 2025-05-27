@@ -5,6 +5,8 @@
 ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376842963287806044/c2.gif?ex=6836cc6e&is=68357aee&hm=841293f6f6b2ff3439959fe7f49613bd7ebc337a6fbcd001f77731d013baa4fb&)
 ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376842943641682000/tumblr_2eed2ca4ce7fa760f14547b6bd654db2_27cd83a2_100.jpg?ex=6836cc6a&is=68357aea&hm=f58470ab2276d4b6c9be27383dabf94fbd71e2de3f4de5092a16c34697491ade&)
 
+this is only made for pony town purposes, all about me is held in my [strawpage](https://inmyputer.straw.page) please give it a check!
+
 ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376847143259607070/8328bcae.gif?ex=6836d053&is=68357ed3&hm=0fc31d2e7ad6eef278ee35e7bf66d5601972e6b00d0a9bf9f91f28a6c097dc67&) mostly seen sitting with [ugly ahh](https://github.com/SPADESPAIR) , but when im alone im c + h friendly ^_^ you can even talk to me if you'd like to 
 
 #### SOCIALS
