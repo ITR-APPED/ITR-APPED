@@ -7,6 +7,7 @@
  ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376817189193257061/e4.png?ex=6836b46d&is=683562ed&hm=803e42d0a81fd2f6ef28a3b00b0a697a34afb260a6f80c3f5082b0513b0a5ac4&)
  ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376817188874358784/monch.gif?ex=6836b46d&is=683562ed&hm=372960e19ef2a9be28c7992d6d2dc6aa6e7e4aa84e7cb6350d988611cb90f994&)
  ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376817189478465616/b7.gif?ex=6836b46d&is=683562ed&hm=faf3aa122172d5431449e89867cbe9afbe02a791f6d759f4897c26946a3dea59&)
+ ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376817188349935699/c26186ee.gif?ex=6836b46d&is=683562ed&hm=252f75a15217f324abbe8c4523793067f4fad651c07ada0488d9f706d2b7d8d7&)
  
 this is only made for pony town purposes, all about me is held in my [strawpage](https://inmyputer.straw.page) please give it a check!
 
