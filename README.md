@@ -15,3 +15,5 @@ this is only made for pony town purposes, all about me is held in my [strawpage]
 
 #### SOCIALS
 [TT](https://www.tiktok.com/@ikedaren88?_t=ZS-8whW8kcSxcm&_r=1) , @ yaoiweed on discord
+
+![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376813656645304340/tumblr_inline_n37t9kLv4H1qhwjx8540.gif?ex=6836b123&is=68355fa3&hm=a19821b0a25dbfc7a8b0b074eeade950c5319ac170516b9bc712bc20907da5fe&)
