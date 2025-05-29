@@ -9,9 +9,9 @@
  ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376817189478465616/b7.gif?ex=6836b46d&is=683562ed&hm=faf3aa122172d5431449e89867cbe9afbe02a791f6d759f4897c26946a3dea59&)
  ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376817188349935699/c26186ee.gif?ex=6836b46d&is=683562ed&hm=252f75a15217f324abbe8c4523793067f4fad651c07ada0488d9f706d2b7d8d7&)
  
-this is only made for pony town purposes, all about me is held in my [strawpage](https://inmyputer.straw.page) please give it a check! ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376847143800803440/c8b3d1eb.gif?ex=6836d053&is=68357ed3&hm=a205a434b192ca6dda73a9e4cedf20b5eae65c2a1268268f1bc307ab253ce095&)
+this is only made for pony town purposes, all about me is held in my [strawpage](https://inmyputer.straw.page) please give it a check ![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376847143800803440/c8b3d1eb.gif?ex=6836d053&is=68357ed3&hm=a205a434b192ca6dda73a9e4cedf20b5eae65c2a1268268f1bc307ab253ce095&)
 
-![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376847143259607070/8328bcae.gif?ex=6836d053&is=68357ed3&hm=0fc31d2e7ad6eef278ee35e7bf66d5601972e6b00d0a9bf9f91f28a6c097dc67&) mostly seen sitting with [ugly ahh](https://github.com/SPADESPAIR) , but when im alone im c + h friendly ^_^ you can even talk to me if you'd like 2 w2i incase im offtab!
+![lol](https://cdn.discordapp.com/attachments/1199378091697520742/1376847143259607070/8328bcae.gif?ex=6836d053&is=68357ed3&hm=0fc31d2e7ad6eef278ee35e7bf66d5601972e6b00d0a9bf9f91f28a6c097dc67&) mostly seen sitting with [ugly ahh](https://github.com/SPADESPAIR) , but when im alone im c + h friendly ^_^ you can even talk to me if you'd like 2 w2i incase im offtab
 
 #### SOCIALS
 [TT](https://www.tiktok.com/@ikedaren88?_t=ZS-8whW8kcSxcm&_r=1) , @ yaoiweed on discord
